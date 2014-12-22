@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Child-birth or, The happy deliuerie of vvomen VVherein is set downe the gouernment of women. In the 
+
 **Types of content**
 
   * There are 11 **verse** lines!
